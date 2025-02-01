@@ -6,4 +6,4 @@
 
 [liam](https://github.com/fiIow)  　  　  　  me  　  　  　[elias](https://github.com/snakelias)
 
-ihate bullies ongong.
+ihate (joke) bullies ongong.

@@ -6,4 +6,4 @@
 
 [liam](https://github.com/fiIow)  　  　  　  me  　  　  　[elias](https://github.com/snakelias)
 
-ihate 'joke' bullies ongong.
+i freaking love pest and poob guys omg pls yaoiyaoiyoiaoyia

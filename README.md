@@ -6,5 +6,4 @@
 
 [liam](https://github.com/fiIow)  　  　  　  me  　  　  　[elias](https://github.com/snakelias)
 
-i freaking love pest and poob guys omg pls 
-and ofc yaoi heh.
+woof bark woof

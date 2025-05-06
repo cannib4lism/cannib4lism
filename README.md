@@ -4,4 +4,4 @@
 
 right one , wrong time
 <div align="center">
-today's a good time to say goodbye
+today's a good day to say goodbye
